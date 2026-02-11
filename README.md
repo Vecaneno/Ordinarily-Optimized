@@ -1,2 +1,2 @@
 # Ordinarily-Optimized
-Ordinarily-Optimized  Issue tracker
+For issues use google.com and chatpgt.com
